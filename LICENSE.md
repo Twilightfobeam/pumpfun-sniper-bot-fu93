@@ -1,4 +1,4 @@
-# 
+# elite Scanner for pump.fun sniper bot | degen-coin-scanning & priority-gas-auctions is the best pump.fun sniper bot, featuring degen-coin-scanning and priority-gas-auctions. Fast,
 
 
 
